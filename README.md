@@ -8,7 +8,7 @@ As a trusted **open slat wooden crates supplier Ontario**, we manufacture skelet
 
 ## Buy Open Slat Wooden Crates for Lightweight Shipping
 
-Companies that **buy open slat wooden crates for lightweight shipping** benefit from packaging solutions that balance durability with reduced material weight.
+Companies that [**buy open slat wooden crates for lightweight shipping**](https://www.bluerosepackaging.com/location/ontario/buy-open-slat-wooden-crates-skeleton-crates-near-me-in-ontario/) benefit from packaging solutions that balance durability with reduced material weight.
 
 Open slat wooden crates are commonly used for:
 
